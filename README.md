@@ -2,7 +2,7 @@
 1. Tavros Nitram enjoymenet
 2. There are no other contents
                                                       
-# # Don't like Tavros? Read the below!
+# @ Don't like Tavros? Read the below!
 iam big time fan of tavros , tavros haters DNI!!!!!!!!!!!!!!!!!!!!!!!!!!!GGRRRRRRRRRRR
 wait no.. dont dni...... click the rentry below
 https://rentry.co/tavroshypnotismsession
