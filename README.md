@@ -2,8 +2,7 @@
 1. Tavros Nitram enjoymenet
 2. There are no other contents
                                                       
-# @ Don't like Tavros? Read the below!![still best](https://github.com/SpaceStationLevel7/Click-here-to-get-your-opinions-changed-FOR-FREE/assets/124318937/8dab6569-8e2d-4f17-9ae2-1d30b6863e41)
-
+# @ Don't like Tavros? Read the below!![STILL SILLY](https://github.com/SpaceStationLevel7/Click-here-to-get-your-opinions-changed-FOR-FREE/assets/124318937/769b7f42-62ba-4a99-8fc2-5b7534c20941)
 iam big time fan of tavros , tavros haters DNI!!!!!!!!!!!!!!!!!!!!!!!!!!!GGRRRRRRRRRRR
 wait no.. dont dni...... click the rentry below
 https://rentry.co/tavroshypnotismsession
