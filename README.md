@@ -7,3 +7,4 @@ iam big time fan of tavros , tavros haters DNI!!!!!!!!!!!!!!!!!!!!!!!!!!!GGRRRRR
 wait no.. dont dni...... click the rentry below
 https://rentry.co/tavroshypnotismsession
 ![HEHEHEHEHOHEOEHOEOH](https://github.com/SpaceStationLevel7/moew/assets/124318937/b5272324-67f5-47dc-b297-312b4c000fa5)
+If you still somehow hate Tavros after that VERY convincing and life-changing Rentry, then DNI!!!!!!!!!!!!!!no but seriously dni
