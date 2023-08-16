@@ -8,5 +8,4 @@ wait no.. dont dni...... click the rentry below
 https://rentry.co/tavroshypnotismsession
 ![HEHEHEHEHOHEOEHOEOH](https://github.com/SpaceStationLevel7/moew/assets/124318937/b5272324-67f5-47dc-b297-312b4c000fa5)
 If you still somehow hate Tavros after that VERY convincing and life-changing Rentry, then DNI!!!!!!!!!!!!!!no but seriously dni
-                                                                                                                                  
 ![jaspurrs](https://github.com/SpaceStationLevel7/Click-here-to-get-your-opinions-changed-FOR-FREE/assets/124318937/5b31f09f-72cb-4e2f-9c8a-993806573cc2)
